@@ -12,7 +12,9 @@ interagir avec les personnes qui se trouvent dans son environnement.
 
 Participation du projet au concours : "trophéeNSI". Nous avons remporté les lauréats régionaux grâce à ce projet.
 
+
 Vidéo de présentation : https://peertube.monlycee.net/w/rdsjv15AMhPzuabvPrJvbN
+
 Pdf avec demande de participation + explication du projet : https://d1t9mwb4xrtjag.cloudfront.net/archives2023/lmH94SMETVFO7U9BMlJo6aKOcYx5IIUiq29VgBJP.pdf
 
 
